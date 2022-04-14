@@ -4,6 +4,7 @@
 ## Contact
 
 - **Discord**: cleveraziko#9429
+- **Telegramm**: @Azamat_Akmalovich
 - **E-mail**: azamat70797@gmail.com
 - **Tel**: +998-93-378-53-31
 ------------------------------------------------------------------------------------
